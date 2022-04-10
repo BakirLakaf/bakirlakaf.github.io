@@ -1,1 +1,0 @@
-# bakirlakaf.github.io
